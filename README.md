@@ -1,5 +1,4 @@
 ## Hi there 
-
 ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ffridaynightfunking.fandom.com%2Fwiki%2FLuz_Noceda&psig=AOvVaw3Ho1v3-J8_YcG76fa5XILL&ust=1722433545649000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCJjIm5HzzocDFQAAAAAdAAAAABAD)
 
 <!--
