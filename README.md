@@ -2,6 +2,9 @@
 
 ![](https://cdn.pixabay.com/animation/2024/02/23/14/13/14-13-00-862_512.gif)
 
+Curso desenho, pretrendendo ser um desenhista famoso.
+Caso queira saber mais de mim, Entre em contato: viclovess666@gmail.com
+
 <!--
 **Luz-Noceda-Oficial/Luz-Noceda-Oficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
