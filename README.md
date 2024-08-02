@@ -1,5 +1,7 @@
 ## Bem vindo ao meu perfil!! (Talvez não seja muito interessante...) 
 
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.minirecados.com%2Fgifs_animados_de_danca%2F&psig=AOvVaw3HFPaUeIjLo9EQ2cRuCh8J&ust=1722692556878000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCLjlxYu41ocDFQAAAAAdAAAAABAD)
+ 
 <!--
 **Luz-Noceda-Oficial/Luz-Noceda-Oficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
