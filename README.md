@@ -1,5 +1,7 @@
 ## Bem vindo ao meu perfil!! (Talvez não seja muito interessante...) 
 
+![]((https://www.minirecados.com/fotorecado-danca-364/))
+
 <!--
 **Luz-Noceda-Oficial/Luz-Noceda-Oficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -15,4 +17,3 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://www.minirecados.com/fotorecado-danca-364/)
