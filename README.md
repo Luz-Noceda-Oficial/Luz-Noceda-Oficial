@@ -1,6 +1,6 @@
 ## Bem vindo ao meu perfil!! (Talvez não seja muito interessante...) 
 
-![](https://cdn.pixabay.com/animation/2023/12/28/00/34/00-34-36-864_512.gif)
+![](https://cdn.pixabay.com/animation/2024/02/23/14/13/14-13-00-862_512.gif)
 
 <!--
 **Luz-Noceda-Oficial/Luz-Noceda-Oficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
