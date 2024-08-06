@@ -5,10 +5,10 @@
 𝘊𝘶𝘳𝘴𝘰 𝘥𝘦𝘴𝘦𝘯𝘩𝘰, 𝘱𝘳𝘦𝘵𝘳𝘦𝘯𝘥𝘦𝘯𝘥𝘰 𝘴𝘦𝘳 𝘶𝘮 𝘥𝘦𝘴𝘦𝘯𝘩𝘪𝘴𝘵𝘢 𝘧𝘢𝘮𝘰𝘴𝘰.
 𝘊𝘢𝘴𝘰 𝘲𝘶𝘦𝘪𝘳𝘢 𝘴𝘢𝘣𝘦𝘳 𝘮𝘢𝘪𝘴 𝘥𝘦 𝘮𝘪𝘮, 𝘌𝘯𝘵𝘳𝘦 𝘦𝘮 𝘤𝘰𝘯𝘵𝘢𝘵𝘰: viclovess666@gmail.com
 
-Comida favorita:
-Jogo favorito:
-Livro favorito:
-Filme/Desenho:
+Comida favorita: Feijoada.
+Jogo favorito: Identity V.
+Livro favorito: Alice no pais das maravilhas.
+Filme/Desenho favorito: The Owl House e Deixe Ela Entrar.
 
 <!--
 **Luz-Noceda-Oficial/Luz-Noceda-Oficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
