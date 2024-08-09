@@ -8,7 +8,7 @@
 Comida favorita: Feijoada.
 Jogo favorito: Identity V.
 Livro favorito: Alice no pais das maravilhas.
-Filme/Desenho favorito: The Owl House e Deixe Ela Entrar.
+Filme/Desenho favorito: The Owl House e Deixa Ela Entrar.
 
 <!--
 **Luz-Noceda-Oficial/Luz-Noceda-Oficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
